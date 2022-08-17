@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **contact@davigrah.com**
 
-- ⚡ Fun fact **I use to be a Chef!**
+- ⚡ Fun fact **I used to be a Chef!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
